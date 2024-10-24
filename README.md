@@ -1,4 +1,4 @@
-## Olá 👋, Bem-vind@ ao perfil 😁
+## Olá 👋! Bem-vind@ ao perfil 😁
 ### Me chamo Underléa esse é ✨ meu GitHub profile.
 
 Para você saber mais sobre mim:
